@@ -1,0 +1,1 @@
+![](https://github.com/KrijanShrestha77261175/Tip-Calculator/blob/master/tip%20calculator.gif)
